@@ -6,3 +6,6 @@ In 2024, as CP2 students, our team is working on an ambitious project to develop
 ![image](https://github.com/user-attachments/assets/43bf459d-5cbc-4640-953f-193f3600e4ac)
 
 ![WhatsApp Image 2024-06-26 at 01 43 15_6e03741a](https://github.com/user-attachments/assets/ef83cf1e-2f29-4ec5-a81d-9e45ba803f08)
+
+
+instragram video about our project : https://www.instagram.com/reel/C87vjkItFCP/?igsh=MW40cTl2aTAwdzFoYg==
